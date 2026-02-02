@@ -1,5 +1,6 @@
 # Cyber Security
 
-## 6702041510083
+## Information
 - Kunasin Chaisoda
+- 6702041510083
 - s6702041510083@email.kmutnb.ac.th
